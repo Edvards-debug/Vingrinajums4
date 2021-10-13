@@ -1,2 +1,2 @@
-# Vingrinajums4
-Vingrinajums4
+# Vingrinajums4 - 7
+
